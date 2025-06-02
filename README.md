@@ -2,7 +2,7 @@
 
 🎯 Business Enthusiast | 📊 Aspiring Analyst | 💻 Tech-Driven Thinker  
 🎓 B.Tech Electrical Engineering @ IIT Jammu (2026)  
-📍 From Punjab, India | 🧩 Interning @ Amazon (BA Intern)
+📍 From Amritsar,Punjab | 🧩 Interning @ Amazon (BA Intern)
 
 ---
 
