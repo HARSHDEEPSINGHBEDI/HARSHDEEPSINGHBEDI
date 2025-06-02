@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Harshdeep Singh
+# 👋 Sat Shree Akaal, I'm Harshdeep Singh
 
 🎯 Business Enthusiast | 📊 Aspiring Analyst | 💻 Tech-Driven Thinker  
 🎓 B.Tech Electrical Engineering @ IIT Jammu (2026)  
