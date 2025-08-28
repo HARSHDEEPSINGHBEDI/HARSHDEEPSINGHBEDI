@@ -8,8 +8,7 @@
 
 ## 🔗 Connect With Me
 
-[![LinkedIn](https://img.shields.io/badge/-LinkedIn-blue?style=flat-square&logo=linkedin)](https://www.linkedin.com/in/harshdeep-singh-bedi)  
-[![X (Twitter)](https://img.shields.io/badge/-@Harshdeep955-black?style=flat-square&logo=x)](https://x.com/Harshdeep955)  
+[![LinkedIn](https://img.shields.io/badge/-LinkedIn-blue?style=flat-square&logo=linkedin)](https://www.linkedin.com/in/harshdeep-singh-bedi)   
 [![Linktree](https://img.shields.io/badge/-Linktree-39e09b?style=flat-square&logo=linktree)](https://harshdeepsinghbedi.github.io/Linktree/)  
 
 
